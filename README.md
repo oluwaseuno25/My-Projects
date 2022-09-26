@@ -1,1 +1,1 @@
-# OLUWASEUN_INFO5502_-Summer2022
+# My projects
